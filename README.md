@@ -1,0 +1,1 @@
+# taghyan_jewelry_store
